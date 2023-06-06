@@ -1,0 +1,1 @@
+# produktovy-detail-kolo
